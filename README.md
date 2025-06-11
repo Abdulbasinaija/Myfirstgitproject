@@ -1,4 +1,1 @@
-my to-do file
-write code early morning 
-go to the market 
-calling girlfriend 
+I want to give you my life story about what's going on this life
